@@ -1,1 +1,1 @@
-# HeorhiiPotapov.github.io
+# heorhiipotapov.github.io
